@@ -1,5 +1,5 @@
 - 👩‍💻 Hi, I’m Poojitha.
-- 📊 I’m interested in data and business analytics.
+- 📊 I’m interested in business and data analytics.
 - 📚 I’m currently learning them. 
 - ✨ I’m looking to collaborate on interesting projects.
 - 📫 Reach me via my email - poojithaakula20@gmail.com.
